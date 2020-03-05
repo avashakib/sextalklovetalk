@@ -6,15 +6,7 @@ bio: |
 avatar: "/images/ava.jpeg"
 featured: true
 social:
-- title: unsplash
-  url: https://unsplash.com
-- title: github
-  url: https://github.com
-- title: github
-  url: https://github.com
-- title: github
-  url: https://github.com
-- title: github
-  url: https://github.com
+- title: instagram
+  url: https://instagram.com/sextalklovetalk/
 
 ---
