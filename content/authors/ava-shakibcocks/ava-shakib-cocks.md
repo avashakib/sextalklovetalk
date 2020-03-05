@@ -1,5 +1,5 @@
 +++
-avatar = ""
+avatar = "/images/ava.jpeg"
 bio = ""
 featured = true
 title = "Ava Shakib Cocks"
