@@ -1,5 +1,5 @@
 +++
-authors = [Ava Shakib Cocks]
+authors = ['Ava Shakib Cocks']
 date = 2020-03-04T16:00:00Z
 excerpt = "test"
 hero = "/images/ava.jpeg"
