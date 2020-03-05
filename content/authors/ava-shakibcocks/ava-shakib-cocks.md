@@ -7,7 +7,7 @@ title = "Ava Shakib Cocks"
 title = "Email"
 url = "mailto:sextalklovetalk@gmail.com"
 [[social]]
-title = ""
-url = ""
+title = "Instagram"
+url = "https://instagram.com/sextalklovetalk/"
 
 +++
