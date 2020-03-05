@@ -1,9 +1,10 @@
 ---
-title: "Ava Shakib Cocks"
-bio: ""
 avatar: "/images/ava.jpeg"
+bio: Bio
 featured: true
+title: Ava Shakib Cocks
 social:
-  - title: "instagram"
-    url: "https://instagram.com/sextalklovetalk/"
+- title: instagram
+  url: https://instagram.com/sextalklovetalk/
+
 ---
