@@ -1,7 +1,6 @@
 ---
 hero:
-  heading: "A place to talk about all things sex and love. \n\nA space for education
-    and laughter on conversations we often avoid. "
+  heading: A place to talk about all things sex and love.
   maxWidthPX: "652"
 
 ---
