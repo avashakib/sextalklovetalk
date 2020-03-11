@@ -7,12 +7,14 @@ timeToRead = 2
 title = "TEST: Why talk about sex and love?"
 
 +++
-**test**
+A thirteen year old- for the first time, enters a romantic relationship. With curiosity and excitement for what is in store for this new love, she googles: “how to kiss.” What is to come is a rabbit hole of endless, anonymous browsing of what originally was thought to be a simple explanation of soft romantic touch- turned into a full blown portrayal of hardcore sex. That thirteen year old was me, and I am surely not the only one who formed an understanding of sexuality through the portrayal of sexual contact through media. As an adult and scholar reflecting on the prevalence of situations like this, I have become intrigued by the question of what content like sexually explicit internet material, romantic comedies, and reality TV can teach us.
 
-testtesttesttest
+What has media taught me about my own body and the bodies of others? What has it shown queer people, people of color and people living with disabilities about their role and place in the bedroom and romantic relationships? What happens when our vision and understanding of sex comes from shows like The Bachelor and the contents of Pornhub’s homepage?
 
-ftest
+Does the priorization of the cisgendered male orgasm, the normalization of non-communicative sex, the prevelance of namecalling queer people and people of color- all seen in mainstream porn- influence the sexual behaviors, attitudes, and expectations of individuals in our society? Does it and has it influenced my own sexual behaviors, attitudes, and expectations? Has it influenced yours?
 
-_test_
+We are letting media directors and writers decide what is normal and to-be-expected in our sex and love lives. Why not, instead, have these conversations and discussions with people in our lives? That way we can gain more control and understanding of our own experiences of sex and love... or lack thereof. 
 
-testtesttestfffh
+I hope for this blog and the Sex talk. Love talk. podcast to be a space for true, honest, blunt, and real conversations to be had, for the sake of us making powerful decisions in our sex and love lives. Thanks for joining me- Welcome!
+
+If you have any comments, questions, or topic suggestions, please reach out to me through sextalklovetalk@gmail.com or DM me on Instagram @sextalklovetalk
