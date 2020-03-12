@@ -11,8 +11,6 @@ A thirteen year old- for the first time, enters a romantic relationship. With cu
 
 What has media taught me about my own body and the bodies of others? What has it shown queer people, people of color and people living with disabilities- to name a few- about their role and place in the bedroom and romantic relationships? What happens when our vision and understanding of sex and romance comes from shows like The Bachelor and the contents of Pornhub’s homepage?
 
-Does the priorization of the cisgendered male orgasm, the normalization of non-communicative sex, the prevelance of namecalling queer people and people of color- all seen in mainstream porn- influence the sexual behaviors, attitudes, and expectations of individuals in our society? Does it and has it influenced my own sexual behaviors, attitudes, and expectations? Has it influenced yours?
-
 We are letting media directors and writers decide what is normal and to-be-expected in our sex and love lives. Why not, instead, have these conversations and discussions with people in our personal lives? That way, through sharing our thoughts and stories, we can gain more control and understanding of our own experiences of sex and love... or lack thereof... rather than blindly accepting what our surroundings are teaching us.
 
 I hope for this blog and the _Sex talk. Love talk._ podcast to be a space for true, honest, blunt, and real conversations to be had, for the sake of us making powerful decisions in our sex and love lives. Thanks for joining me- Welcome!
