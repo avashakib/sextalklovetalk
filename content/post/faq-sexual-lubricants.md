@@ -27,8 +27,6 @@ We'll be tackling the following questions:
 
 If you have any additional questions, feel free to email me at sextalklovetalk@gmail.com or DM @sextalklovetalk on Instagram.
 
-Let's get started!
-
 \~\~\~
 
 Before we dig deeper into specific questions about lube let’s have a quick overview so you can get closer to finding out which is best for your needs.
