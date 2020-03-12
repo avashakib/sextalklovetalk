@@ -134,9 +134,7 @@ Vaginal dryness can be related to a lot of different things. I mean hey, maybe y
 Here are some examples of what can cause vaginal dryness, all of which are unrelated to whether you are or are not turned on.
 
 * Decreased levels of **estrogen**, for example during and after menopause
-* When there hasn’t been enough **foreplay** (pre-penetration sensation like kissing, caressing, oral sex, etc).
-
-  _Your vagina depends on foreplay to let your body know to secrete vagina fluids, which are the body‘s natural lubricant._ If you’re going from a non-sexual situation immeditately to vaginal penetration, it can feel dry and painful. Try out foreplay. If this still doesn’t get you wet, that’s OH-KAY. That’s what lube is here for.
+* When there hasn’t been enough **foreplay** (pre-penetration sensation like kissing, caressing, oral sex, etc). _Your vagina depends on foreplay to let your body know to secrete vagina fluids, which are the body‘s natural lubricant._ If you’re going from a non-sexual situation immeditately to vaginal penetration, it can feel dry and painful. Try out foreplay. If this still doesn’t get you wet, that’s OH-KAY. That’s what lube is here for.
 * Using **condoms** automatically creates more dryness and friction. A lot of condoms are pre-lubricated but it’s usually not enough- so throw on some lubricant. (Do not use oil-based lube like coconut oil or baby oil. They break condoms.)
 
 Overall, **SEX SHOULD FEEL GOOD and be free of pain**. If is not comfortable, you have every right to stop the situation. Lube can help decrease discomfort during penetration sometimes, all the time, or never. Do what you need to do to make it feel good. If it doesn’t feel good- maybe today’s not the day to have vaginal or anal penetration. (Note: the anal gland also can produce natural lubricants. I’ll save that for another post)
