@@ -1,5 +1,5 @@
 +++
-authors = []
+authors = ["Ava Shakib"]
 date = 2020-03-12T09:00:00Z
 excerpt = "We’re gonna make these FAQ about sexual lubricants as quick, simple, and easy as possible. If you have any particular questions, feel free to email me at sextalklovetalk@gmail.com or DM @sextalklovetalk on Instagram"
 hero = "/images/cactus"
