@@ -159,8 +159,8 @@ If you are not concerned about bacteria/infections caused by spit and there's en
 
 ## What ingredient should I look out for that can potentially hurt or irritate me?
 
-* **Glycerin**: Common in water-based lubes- Watch out for this if you commonly get yeast infections. Glycerin can also irritate and kill the good bacteria in the vagina.
-* **Nonoxynol-9**: Often in spermicides, and sometimes in lube, can cause Urinary Tract Infections (UTIs).
+* **Glycerin**: Common in water-based lubes- Watch out for this if you commonly get yeast infections. It is know to cause yeast infections and Urinary Tract Infections (UTIs).
+* **Nonoxynol-9**: Often in spermicides, and sometimes in lube, can cause UTIs. 
 * **Vaseline** and **baby oil** (petroleum-based lubes): While it may reduce friction during sex, it can also introduce bacteria that can lead to an infection. I would honestly stay away from these completely since there are so many other options to use as lubricants that are much safer.
 * **Chlorhexidine gluconate**: If you are having problems with your current lube, check to see if it has this ingredient, which is associated with irritation.
 * **Parabens**: There is not much evidence, but this ingredient has been linked to high levels of estrogen which is something you want to avoid. But again, there doesn’t seem to be much evidence.
