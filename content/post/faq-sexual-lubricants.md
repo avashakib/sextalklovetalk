@@ -175,7 +175,7 @@ Silicone-based lubricants are your best bet. Also try to use natural lubricants.
 
 Flavored/scented lube brings sugar into the vagina which can cause infections because yeast loves sugar. Flavored lubes are meant for oral sex and are not to be used inside of the body. You can always use it and wash it off before penetration.
 
-Flavored lube with sugar, saccharin, or aspartame should be avoided during penetration. Products with Stevia and Xylitol are okay because they do not feed yeast. “Wicked Aqua” and “Naturally Yours” are both flavored products that do not feed the yeast in your body, which causes infections.
+Flavored lube with sugar, saccharin, or aspartame should be avoided during penetration. Products with Stevia and Xylitol are okay because they do not feed yeast. _Wicked Aqua_ and _Naturally Yours_ are both flavored products that do not feed the yeast in your body, which causes infections.
 
 ## When I use warming lube, I get a nice tingly sensation but then it starts burning. Why?
 
