@@ -139,7 +139,7 @@ Here are some examples of what can cause vaginal dryness, all of which are unrel
 
 Overall, **SEX SHOULD FEEL GOOD and be free of pain**. If is not comfortable, you have every right to stop the situation. Lube can help decrease discomfort during penetration sometimes, all the time, or never. Do what you need to do to make it feel good. If it doesn’t feel good- maybe today’s not the day to have vaginal or anal penetration. (Note: the anal gland also can produce natural lubricants. I’ll save that for another post)
 
-If vaginal dryness and pain/discomfort is a long term issue for you, know that you are not alone. If you are able to seek help from a healthcare professional, I highly recommend doing so. Planned Parenthood is a wonderful resource, with caring support that is understanding of all experiences and financial backgrounds. Are you stuck on what to do? Feel free to reach out to me for advice and/or support.
+_If vaginal dryness and pain/discomfort is a long term issue for you, know that you are not alone. If you are able to seek help from a healthcare professional, I highly recommend doing so. Planned Parenthood is a wonderful resource, with caring support that is understanding of all experiences and financial backgrounds. Are you stuck on what to do? Feel free to reach out to me for advice and/or support._
 
 ## Is lube only sold at sex stores?
 
