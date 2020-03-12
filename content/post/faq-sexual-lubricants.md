@@ -69,7 +69,7 @@ Before we dig deeper into specific questions about lube let’s have a quick ove
 
 It is important to remember that _every body is different_. On paper (or on this screen), it may sound as though a type of lube is perfect for you- you go to try it and it causes an irritation. That’s a sign to give that brand up and try another one, preferably a brand that contains more natural ingredients. Feeling generous? give that hand-me-down to a friend.
 
-***
+\~\~\~
 
 Now let’s get to the questions that I received from our followers!
 
