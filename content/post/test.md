@@ -18,3 +18,6 @@ We are letting media directors and writers decide what is normal and to-be-expec
 I hope for this blog and the _Sex talk. Love talk._ podcast to be a space for true, honest, blunt, and real conversations to be had, for the sake of us making powerful decisions in our sex and love lives. Thanks for joining me- Welcome!
 
 If you have any comments, questions, or topic suggestions, please reach out to me through sextalklovetalk@gmail.com or DM me on Instagram @sextalklovetalk
+
+\~\~\~  
+Photo courtesy of Unstock.com/WyRon A
