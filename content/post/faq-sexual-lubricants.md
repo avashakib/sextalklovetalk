@@ -1,7 +1,7 @@
 +++
 authors = ["Ava Shakib"]
 date = 2020-03-12T09:00:00Z
-excerpt = "We’re gonna make these FAQ about sexual lubricants as quick, simple, and easy as possible. If you have any particular questions, feel free to email me at sextalklovetalk@gmail.com or DM @sextalklovetalk on Instagram"
+excerpt = "You ask, I’ll answer! We’re gonna make these frequently asked questions about sexual lubricants as quick, simple, and easy as possible."
 hero = "/images/cactus-min.jpg"
 timeToRead = 12
 title = "FAQ: Sexual lubricants"
