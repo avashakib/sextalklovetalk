@@ -7,7 +7,7 @@ timeToRead = 12
 title = "FAQ: Sexual lubricants"
 
 +++
-We’re gonna make these FAQ about sexual lubricants as quick, simple, and easy as possible.
+We’re gonna make these frequently asked questions about sexual lubricants as quick, simple, and easy as possible.
 
 We'll be tackling the following questions:
 
