@@ -41,4 +41,5 @@ fields:
   default: []
   label: Authors
 pages:
+- content/post/faq-sexual-lubricants.md
 - content/post/test.md
