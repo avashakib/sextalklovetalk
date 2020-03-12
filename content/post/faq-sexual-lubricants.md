@@ -191,7 +191,7 @@ Oil-based and silicone-based lubricants are best when having sex in a setting th
 
 **There you have it, folks. There’s a bunch of info about lube for you to take in. I am here with the goal of making it easier for you to make well informed decisions about your health, particularly the parts of your life related to sex and relationships. I hope this helps make that happen.**
 
-If you want more info about all things sex and love- **follow** **@sextalklovetalk** on Instagram and listen to the **“Sex talk. Love talk.” podcast** on Spotify, Apple, or Google podcast.
+If you want more info about all things sex and love- **follow** **@sextalklovetalk** on Instagram and listen to the **_Sex talk. Love talk._ podcast** on Spotify, Apple, or Google podcast.
 
 If you have any comments, questions, or topic suggestions, please reach out to me through **sextalklovetalk@gmail.com** or DM me on Instagram.
 
