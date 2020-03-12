@@ -199,3 +199,6 @@ If you have any comments, questions, or topic suggestions, please reach out to m
 Until next time,
 
 Ava
+
+\~\~\~  
+Photo courtesy of Unstock.com/Charles Delucvio
