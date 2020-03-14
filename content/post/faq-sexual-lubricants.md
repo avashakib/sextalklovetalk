@@ -29,7 +29,7 @@ If you have any additional questions, feel free to email me at sextalklovetalk@g
 
 \~\~\~
 
-Before we dig deeper into specific questions about lube let’s have a quick overview so you can get closer to finding out which is best for your needs.
+Before we dig deeper into specific questions about lube, let’s have a quick overview so you can get closer to finding out which is best for your needs.
 
 ##### There are 3 main types of lube. Here’s some info about:
 
@@ -67,7 +67,7 @@ Before we dig deeper into specific questions about lube let’s have a quick ove
 
 It is important to remember that _every body is different_. On paper (or on this screen), it may sound as though a type of lube is perfect for you- you go to try it and it causes an irritation. That’s a sign to give that brand up and try another one, preferably a brand that contains more natural ingredients. Feeling generous? give that hand-me-down to a friend.
 
-\~\~\~
+\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~
 
 Now let’s get to the questions that I received from our followers!
 
@@ -137,7 +137,7 @@ Here are some examples of what can cause vaginal dryness, all of which are unrel
 * When there hasn’t been enough **foreplay** (pre-penetration sensation like kissing, caressing, oral sex, etc). _Your vagina depends on foreplay to let your body know to secrete vaginal fluids, which are the body‘s natural lubricant._ If you’re going from a non-sexual situation immeditately to vaginal penetration, it can feel dry and painful. Try out foreplay. If this still doesn’t get you wet, that’s OH-KAY. That’s what lube is here for.
 * Using **condoms** automatically creates more dryness and friction. A lot of condoms are pre-lubricated but it’s usually not enough- so throw on some lubricant. (Do not use oil-based lube like coconut oil or baby oil. They break condoms.)
 
-Overall, **SEX SHOULD FEEL GOOD and be free of pain**. If is not comfortable, you have every right to stop the situation. Lube can help decrease discomfort during penetration sometimes, all the time, or never. Do what you need to do to make it feel good. If it doesn’t feel good- maybe today’s not the day to have vaginal or anal penetration. (Note: the anal gland also can produce natural lubricants. I’ll save that for another post)
+Overall, **SEX SHOULD FEEL GOOD and be free of pain**. If is not comfortable, you have every right to stop the situation. Lube can help decrease discomfort during penetration sometimes, all the time, or never. Do what you need to do to make it feel good. If it doesn’t feel good- maybe today’s not the day to have vaginal or anal penetration. (Note: the anal gland also can produce natural lubricants but lubricant is always advised. I’ll save that for another post)
 
 _If vaginal dryness and pain/discomfort is a long term issue for you, know that you are not alone. If you are able to seek help from a healthcare professional, I highly recommend doing so. Planned Parenthood is a wonderful resource, with caring support that is understanding of all experiences and financial backgrounds. Are you stuck on what to do? Feel free to reach out to me for advice and/or support._
 
