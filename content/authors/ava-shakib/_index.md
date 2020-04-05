@@ -6,6 +6,6 @@ avatar: "/images/ava_photo.jpg"
 featured: true
 social:
 - title: instagram
-  url: https://instagram.com/sextalklovetalk/
+  url: https://instagram.com/sextalklovetalkpodcast/
 
 ---
